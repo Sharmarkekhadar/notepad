@@ -1,0 +1,2 @@
+# notepad
+waa xusus notes
